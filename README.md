@@ -1,1 +1,1 @@
-# Verqors-Faming-Tycoon
+# Verqors-Farming-Tycoon
